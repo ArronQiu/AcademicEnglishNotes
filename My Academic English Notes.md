@@ -293,7 +293,7 @@ used with either a singular or a plural verb, depending on whether you are talki
 
 ![image-20210811195017753](a%20My%20Academic%20English%20Notes_figures/image-20210811195017753.png?raw=true)
 
-![image-20210811194910943]a%20My%20Academic%20English%20Notes_figures/image-20210811194910943.png?raw=true)
+![image-20210811194910943](a%20My%20Academic%20English%20Notes_figures/image-20210811194910943.png?raw=true)
 
 Further reading: 
 
